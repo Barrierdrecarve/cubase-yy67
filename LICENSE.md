@@ -1,4 +1,4 @@
-# 
+# Automático Vegas Pro para PC addons é o melhor Vegas Pro para PC addons com estiramento de tempo e estabilização de vídeo. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
